@@ -1,5 +1,5 @@
 
-<img align="center" style="margin-bottom:100px" width=100% src="https://github.com/S1rAnon1mo/Gif.Md/assets/134896433/5f8737d0-7e2e-48d6-a806-136df2c0a070" />
+<img align="center" style="margin-bottom:100px" width=100% src="https://github.com/S1rAnon1mo/Gif.s/assets/134896433/b0b71f54-0350-4fce-af15-38cd384ec0eb" />
 &nbsp;&nbsp;&nbsp;
 
 <p align="center">
